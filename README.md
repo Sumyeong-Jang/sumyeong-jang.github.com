@@ -1,1 +1,1 @@
-# suthinkk.github.io
+# suthink.github.io
